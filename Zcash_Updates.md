@@ -1,4 +1,6 @@
-# Zconvi: Celebrating Synergy through Decentralization - Registration is Open!!!
+# Zconvi: Celebrating Synergy through Decentralization - Registration is open!!!
+Zconvi: Celebrating Synergy through Decentralization - Registration is Open!!!
+curated by [Uknozork](https://x.com/uknow_zork?s=21)
 # ECC & ZF Updates
 
 - [ZconVI: Celebrating Synergy Through Decentralization](https://forum.zcashcommunity.com/t/zconvi-celebrating-synergy-through-decentralization/49392)  
