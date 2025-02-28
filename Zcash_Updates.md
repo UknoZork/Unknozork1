@@ -1,4 +1,4 @@
-# Zconvi: Celebrating Synergy through Decentralization - Registration is open!!!
+# Zcash Ecosystem Digest | March 1st
 Zconvi: Celebrating Synergy through Decentralization - Registration is Open!!!
 curated by [Uknozork](https://x.com/uknow_zork?s=21)
 # ECC & ZF Updates
